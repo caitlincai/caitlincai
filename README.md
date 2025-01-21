@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Nunito&duration=4000&pause=1000&color=74A9FF&background=FFFFFF00&multiline=true&width=435&lines=Hi%2C+I'm+Caitlin+Cai.)](https://git.io/typing-svg)
+![hippo](https://s1.ezgif.com/tmp/ezgif-1-6a340c6378.gif)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Nunito&duration=4000&pause=1000&color=74A9FF&background=FFFFFF00&multiline=true&width=435&lines=Hi%2C+I'm+Caitlin+Cai.)](https://git.io/typing-svg)
