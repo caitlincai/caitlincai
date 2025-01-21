@@ -1,1 +1,1 @@
-![hippo](https://s1.ezgif.com/tmp/ezgif-1-2cb97870a3.gif)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Nunito&duration=4000&pause=1000&color=96C8FF&background=FFFFFF00&multiline=true&width=435&lines=Hi%2C+I'm+Caitlin+Cai.)](https://git.io/typing-svg)
+![hippo](https://s1.ezgif.com/tmp/ezgif-1-7c3d5e10e4.gif)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Nunito&duration=4000&pause=1000&color=96C8FF&background=FFFFFF00&multiline=true&width=435&lines=Hi%2C+I'm+Caitlin+Cai.)](https://git.io/typing-svg)
